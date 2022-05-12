@@ -5,7 +5,7 @@
 Evidence is provided here of the following objectives:
 
 1. Explain communication concepts and strategies
-2.  we practiced communication concepts and stratagies in the workshop in the early weeks of the term.
+  we practiced communication concepts and stratagies in the workshop in the early weeks of the term.
 
 2. Show confidence and skills in oral communications and presentations
  - As a COIT11239 student, I presented on Digital Divide for Indigenous Australians!
